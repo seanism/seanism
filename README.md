@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @seanism
+- 👀 IT Manager
+- 📫 seanism AT gmail DOT com
